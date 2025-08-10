@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **kdhruv728@gmail.com**
 
-- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/11ojyKsCRiZCXuF0xXRW6E8TbPbTFFp6-/view)
+- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/1U_QiCuA1IghTIvawR_kjjeOFTgYoIWnA/view?usp=sharing)
 
 - ⚡ Fun fact **Very Fast Lerner**
 
